@@ -1,2 +1,0 @@
-Here is some group 5 information:
-Insert group 5 information
